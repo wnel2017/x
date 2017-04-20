@@ -4,7 +4,7 @@
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/<table>
   <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/huang.jpg" /></td>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/huang.jpg/></td>
   </tr>
   <tr>
   <td align=left>
