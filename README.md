@@ -5,12 +5,16 @@
   </tr>
   <tr>
    <td align=left>
+   致有缘人的一封信 
+  </tr>
+  <tr>>
+   <td align=left>
 亲爱的朋友，您好： <br/>
 <br/>
 ——茫茫人海，万水千山，此信能辗转至您手中，即是有缘。惜缘即惜福，无论您最终如何对待此信，都请您耐心看完。毕竟“给人一个空间，收获的可能是整片蓝天。”  <br/>
   <br/>
 ——对每个中国人而言，“法轮功”一词一定不会陌生。若问您的看法？不知脑中是否出现天安门自焚、傅怡彬杀人等字眼？然而，法轮功真相究竟如何？请您看看下面的三个问题，就会一目了然了： <br/>
- 
+<br/> 
 一、法轮功也称“法轮大法”，自李洪志师父1992年传法至1999中共开始迫害，传法七年，修炼者一亿。然而，七年之间，未发生一起自焚、杀人，却为何在99年迫害后，恶性事件频频发生？（2001年1月天安门自焚，2001年5月傅怡彬杀人，2005年6月浙江乞丐毒杀案……）。如果法轮功致使习炼者痴迷、疯狂，为什么迫害前没有恶性事件发生？如果有，为什么不查个水落石出，使百姓信服？看来只有两种可能：要么法轮功学员极其“配合”中共打压，打压后才纷纷出现异状；要么就是欲加之罪，何患无辞？<br/>
  
 ——事实上，天安门自焚等事件早已经国际查证完全是中共一手炮制的，自焚是假的。大法修炼者的数量与日俱增，老百姓知道法轮功好，中共党魁江泽民极端妒嫉，就对世人撒下了这个弥天大谎，煽动仇恨配合打压。<br/>
@@ -77,6 +81,29 @@
     “法轮大法好！”“真善忍好！<br/>
     ”你的生命就能平安！<br/>
     天灭中共在即，大难就在眼前，退出党团队，才能脱离危险。<br/>
+  </tr>
+  <tr>
+   <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/3t.jpg"/></td><br/>
+  </tr>
+  <tr>
+   <td align=center>
+   全球近3亿人的幸运选择，珍贵机缘<br/>
+为你而来，这一次您千万别再错过～<br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx?from=wnel-3T">◆◆◆请点击在线快速办理◆◆◆</a><br/>
+   </tr>
+  <tr>
+<td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E1.jpg"/></td>
+  </tr>
+  <tr>
+ <td align=center>
+如打开慢，缓冲稍等或刷新<br/>
+  </tr>
+  <tr>
+<td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/3%E9%80%80%E9%80%83%E5%A4%A7%E7%81%BE.jpg"/>       </tr>
+  <tr>
+   <td align=center>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FST&from=st?from=wnel">◆◆“三退”到底是件什么事？◆◆</a><br/>
+如打开慢，缓冲稍等或刷新<br/>
   </tr>
   <tr>
   <td align=left> 
