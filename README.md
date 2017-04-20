@@ -1,4 +1,3 @@
-
 <table>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E8%87%B4%E6%9C%89%E7%BC%98%E4%BA%BA%E7%9A%84%E4%B8%80%E5%B0%81%E4%BF%A1.jpg" /></td>
@@ -12,7 +11,7 @@
 亲爱的朋友，您好： <br/>
 <br/>
 ——茫茫人海，万水千山，此信能辗转至您手中，即是有缘。惜缘即惜福，无论您最终如何对待此信，都请您耐心看完。毕竟“给人一个空间，收获的可能是整片蓝天。”  <br/>
-  <br/>
+<br/>
 ——对每个中国人而言，“法轮功”一词一定不会陌生。若问您的看法？不知脑中是否出现天安门自焚、傅怡彬杀人等字眼？然而，法轮功真相究竟如何？请您看看下面的三个问题，就会一目了然了： <br/>
 <br/> 
 一、法轮功也称“法轮大法”，自李洪志师父1992年传法至1999中共开始迫害，传法七年，修炼者一亿。然而，七年之间，未发生一起自焚、杀人，却为何在99年迫害后，恶性事件频频发生？（2001年1月天安门自焚，2001年5月傅怡彬杀人，2005年6月浙江乞丐毒杀案……）。如果法轮功致使习炼者痴迷、疯狂，为什么迫害前没有恶性事件发生？如果有，为什么不查个水落石出，使百姓信服？看来只有两种可能：要么法轮功学员极其“配合”中共打压，打压后才纷纷出现异状；要么就是欲加之罪，何患无辞？<br/>
@@ -100,7 +99,8 @@
 如打开慢，缓冲稍等或刷新<br/>
   </tr>
   <tr>
-<td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/3%E9%80%80%E9%80%83%E5%A4%A7%E7%81%BE.jpg"/>       </tr>
+<td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/3%E9%80%80%E9%80%83%E5%A4%A7%E7%81%BE.jpg"/>      
+  </tr>
   <tr>
    <td align=center>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FST&from=st?from=wnel">◆◆“三退”到底是件什么事？◆◆</a><br/>
