@@ -83,17 +83,17 @@
 </tr>
 <tr>
 <td align=left> 
-❤❤记住：<br/>
-❤❤“法轮大法好！”“真善忍好！”<br/>
+❤❤ 记住：<br/>
+❤❤ “法轮大法好！”“真善忍好！”<br/>
 ❤❤ 你的生命就能平安！<br/>
-❤❤天灭中共在即，大难就在眼前，<br/>
-❤❤退出党团队，才能脱离危险。<br/></tr>
+❤❤ 天灭中共在即，大难就在眼前，<br/>
+❤❤ 退出党团队，才能脱离危险。<br/></tr>
   <tr>
    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/3t.jpg"/></td><br/>
   </tr>
   <tr>
    <td align=center>
-   全球近3亿人的幸运选择，珍贵机缘<br/>
+全球近3亿人的幸运选择，珍贵机缘<br/>
 为你而来，这一次您千万别再错过～<br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx?from=wnel-3T">❤❤❤请点击在线快速办理❤❤❤</a><br/>
    </tr>
