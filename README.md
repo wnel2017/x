@@ -84,8 +84,8 @@
 <tr>
 <td align=left> 
 ❤❤记住：<br/>
-❤❤“法轮大法好！”“真善忍好！<br/>
-❤❤ ”你的生命就能平安！<br/>
+❤❤“法轮大法好！”“真善忍好！”<br/>
+❤❤ 你的生命就能平安！<br/>
 ❤❤天灭中共在即，大难就在眼前，<br/>
 ❤❤退出党团队，才能脱离危险。<br/></tr>
   <tr>
@@ -150,7 +150,8 @@
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=wnel">大陆请点击进入动态网址</a><br/>
 微信如果提示：停止访问该网页<br/>
 请点击右上角，选择浏览器打开<br/>
-    </td>
+苹果用户复制到自带浏览器打开<br/>
+    </td>
   </tr>
   <tr>
       <td align=center>
